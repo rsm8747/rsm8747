@@ -104,9 +104,9 @@ My toolkit is diverse, my mindset is growth-driven, and my mission is to build t
 
 ## 🤝 Let’s Connect
 
-📧 Email: rahulmore@example.com  
-🔗 [LinkedIn](https://linkedin.com/in/your-profile)  
-📁 [GitHub](https://github.com/your-username)
+📧 Email: rahulmore8747@gmail.com
+🔗 [LinkedIn](www.linkedin.com/in/rahul-more-8bb59415a)  
+📁 [GitHub](https://github.com/rsm8747)
 
 ---
 
